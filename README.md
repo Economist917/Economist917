@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Soeun
-- 👀 I’m interested in development economics
+- 👀 I’m interested in research
 - 🌱 I’m currently learning for a new project
 - 📫 How to reach me daeilsoeun917@gmail
 - 😄 Pronouns: Soeun
